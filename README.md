@@ -1,2 +1,2 @@
-# money
-learn to make money
+# love
+learn to enjoy love
